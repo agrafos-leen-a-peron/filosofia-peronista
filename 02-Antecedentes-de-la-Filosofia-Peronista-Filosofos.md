@@ -107,7 +107,7 @@ El Justicialismo coincide con el concepto aristotelico de la condicion social de
 
 En lo que se refiere a las diferencias entre los Hombres, el Peronismo es la antitesis de Aristoteles. Para el peronismo hay una sola clase de hombres: los que trabajan.
 
-## 02.04 Santo Tomas de Aquino
+## 02.06 Santo Tomas de Aquino
 
 > "En la escuela tomista se fusionan el pensamiento cristiano y la dualidad aristotelica".
 >
@@ -121,7 +121,7 @@ En cuanto a la esclavitud, si bien expone y desarrolla el pensamiento de Aristot
 
 Santo Tomas sostiene que el gobierno tiene su origen en el Pueblo, que este delega el poder politico en sus representantes, si bien en ultima instancia todo poder deriva de Dios. Sostiene que la realeza es el mejor de los regimenes pero tambien cuya realizacion es mas peligrosa ya que su antitesis, la tirania, es la peor de las formas politicas. Insiste en fomentar las virtudes del principe para que este no sacrifique el bien comun a su bien personal y se convierta en un tirano.
 
-## 02.06 - Juan Jacobo Rousseau
+## 02.07 - Juan Jacobo Rousseau
 
 > "Rousseau creen en el individuo, hace de el una capacidad de virtud, lo integra en una comunidad y suma su poder en el poder de todos, para organizar por la voluntad general la existencia de las naciones".
 >
@@ -133,7 +133,7 @@ En lo referente a la propiedad privada, en su famoso discurso "Sobre el origen d
 
 Para Rousseau el Estado es el producto de un acuerdo tacito entre los ciudadanos en su interes comun. El Estado debe servir a todos los ciudadanos sin excepcion, asegurandoles la libertad y la igualdad.
 
-## 02.07 Carlos Marx
+## 02.08 Carlos Marx
 
 > "El marxismo convertira en materia politica la discusion filosofica y hara de ella una bandera para la interpretacion materialista de la historia".
 >
