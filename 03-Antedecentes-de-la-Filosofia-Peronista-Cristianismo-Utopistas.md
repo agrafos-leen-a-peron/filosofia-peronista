@@ -1,4 +1,4 @@
-# 03 - Antecedentes de la Filosofia Peronista - Cristianismo 
+# 03 - Antecedentes de la Filosofia Peronista - Cristianismo - Utopicos
 
 ## 03.01 - Introduccion
 
@@ -192,3 +192,43 @@ Los sencillos conceptos de Peron sobre la maxima aspiracion de los hombres y de 
 > "Queremos la paz, porque la unica arma que nos puede hacer grandes es el trabajo en paz".
 >
 > -- Peron, 13 Diciembre 1947, en la visita de intelectuales norteamericanos
+
+## 03.04 - Los utopicos
+
+> "El peronismo se precia de haber realizado los mejores sueños de los grandes hombres".
+>
+> -- Eva Peron, Historia del Peronismo
+
+En el momento historico denominado Renacimiento la sociedad feudal cede el paso a los comerciantes capitalistas que habian venido trabajando en su seno hasta adquirir el poderio economico de que ahora gozaban. El campo ya habia sufrido el disgregamiento de los grandes feudos, que eran la base del antiguo regimen; las ciudades se convertian cada vez mas en los centros fundamentales de la vida economica y social de la epoca.
+
+Los comerciantes y traficantes, enriquecidos a expensas de los señores, van cambiando tambien la fisonomia de las ciudades en lo referente al sistema de produccion; las grandes fabricas sustituyen a los pequeños talleres artesanales.
+
+> "En estos grandes talleres el poder del vapor reune en torno suyo sus miradas de subditos".
+>
+> -- Charles Fourier, pensador utopico frances
+
+Alrededor de una maquina y en calidad de auxiliares de la misma se agrupan los hasta ayer artesanos y ahora obreros.
+
+Los capitalistas comerciantes, siempre avidos de dinero, amplian el campo de su actividad tomando bajo su explotacion la industria, que ellos mismos organizan sobre la base de la maquina automatica. La voracidad y falta de escrupulos manifestados por estos nuevos señores cuyas fabricas son verdaderos feudos, los lleva a explotar a los obreros en jornadas de 14 y 16 horas, asi como tambien a las mujeres y niños en la misma extension de jornada, pero con salarios inferiores. Por otra parte, las tareas se desarrollan en condiciones de insalubridad tales que demuestran claramente la falta de sentimientos humanitarios de los patrones. La desilusion en el poder liberador de la maquina, por la comprobacion de que sus virtudes son malogradas por los propietarios de las mismas, abona el campo para el advenimiento de filosofias sociales que sustentan una base comunista, cuyo desarrollo es impulsado por la situacion critica que la voracidad de los capitalistas crea entre los trabajadores.
+
+Este es el fundamento historico de la afirmacion de Peron, de que la causa eficiente del comunismo es el capitalismo.
+
+Los hechos denunciados por los trabajadores pasan como si pasaran a un laboratorio a la mente de los pensadores sociales, que los elaboran hasta llegar a constituir verdaderos sistemas, en los que demuestran de manera irrebatible la injusticia e insensatez de esos procederes que al repetirse reflejan el orden social imperante. De la elaboracion de esos sistemas se pasa a la generalizacion, donde se señala que lo malo no es un comerciante o un capitalista determinado sino el regimen basado en el afan de explotacion sin limites. Por lo tanto, lo que hay que cambiar es el regimen social.
+
+Como contrapartida, estos creadores idean nuevos sistemas sociales en los cuales no existe la explotacion del hombre por el hombre, de modo que este pueda vivir de acuerdo a su noble condicion, en un ambiente de solidaridad, armonia y progreso.
+
+Al estudiar estos sueños de un mundo mejor pergeñados por los utopistas, no debemos enfocarnos en las equivocaciones y divagaciones en las que incurren, sino sobre todo en su altruismo, su voluntad de hallar soluciones de fondo a los problemas que han afligido a los hombres en el recorrido de su itinerario historico.
+
+De ahi que Eva Peron haya dicho que considera precursores de nuestra doctrina a todos aquellos hombres que han sido alentados por el ideal del bien comun.
+
+Por otra parte, debemos tener en cuenta que mcuhas de las afirmaciones de estas aparentes quimeras han dejado de ser tales en la sociedad contemporanea. Podemos recordar las palabras de Lamartine:
+
+> "Las utopias son, a menudo, verdades anticipadas a su tiempo".
+>
+> -- Alphonse de Lamartine, poeta, escritor y politico frances
+
+Las conquistas sociales del Peronismo, que son concrecion de grandes ideales, sostienen esa afirmacion como se vera en el breve recorrido que haremos por el pensamiento utopico, tomando a los dos hombres mas representativos: Tomas Moro y Tomas Campanella.
+
+### 03.04.A - Tomas Moro
+
+
