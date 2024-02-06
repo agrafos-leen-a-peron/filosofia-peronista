@@ -101,7 +101,7 @@ Para impedir las represalias contra sus partidarios prohibio que los magistrados
 
 En resumen, llevo poco a poco a la antigua constitucion aristocratica de la Republica a un modo mas democratico.
 
-Igual que en ocasiones anteriores, el partido aristocratico despues de apelar a la calumnia, a la demagigia, a los medios mas viles para derrotar a Cayo Graco, finalmente provoco una guerra civil en medio de la cual mataron a sus partidarios y amigos. Este, viendose perdido, se refugio en un bosque cercano, donde se hizo matar por su acompañante. Las aguas del Tiber recibieron los cuerpos de tres mil partidarios de las ideas democraticas de los Gracos, que pagaron ocn sus vidas su amor a la justicia.
+Igual que en ocasiones anteriores, el partido aristocratico despues de apelar a la calumnia, a la demagogia, a los medios mas viles para derrotar a Cayo Graco, finalmente provoco una guerra civil en medio de la cual mataron a sus partidarios y amigos. Este, viendose perdido, se refugio en un bosque cercano, donde se hizo matar por su acompañante. Las aguas del Tiber recibieron los cuerpos de tres mil partidarios de las ideas democraticas de los Gracos, que pagaron ocn sus vidas su amor a la justicia.
 
 ## 03.03 - Cristianismo
 
