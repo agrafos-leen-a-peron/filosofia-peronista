@@ -109,3 +109,50 @@ En lo que se refiere a las diferencias entre los Hombres, el Peronismo es la ant
 
 ## 02.04 Santo Tomas de Aquino
 
+> "En la escuela tomista se fusionan el pensamiento cristiano y la dualidad aristotelica".
+>
+> -- Peron, 09 Abril 1949, en el discurso de clausura del Congreso de Filosofia de Mendoza.
+
+Santo Tomas de Aquino une exitosamente la razon y la fe, la filosofia y la teologia, por lo que la Iglesia Catolica considera a su filosofia como la verdadera. Estuvo inspirado por los clasicos griegos; tanto, que se puede decir que Santo Tomas actualiza el pensamiento de Platon y Aristoteles.
+
+Como ejemplo, Santo Tomas coincide con Aristoteles en que la propiedad debe ser individual y conciliando con la doctrina cristiana ordena a los ricos a compartir con los pobres sus bienes, concluyendo que la propiedad es individual pero que su uso debe ser permitido a todos, con lo cual se acerca al sentido peronista de la funcion social de la propiedad individual.
+
+En cuanto a la esclavitud, si bien expone y desarrolla el pensamiento de Aristoteles, no la justifica expresamente. Santo Tomas parte del principio de la igualdad de los hombres, aunque llega a pensar que puede ser util la existencia de amos que manden y siervos que obedezcan.
+
+Santo Tomas sostiene que el gobierno tiene su origen en el Pueblo, que este delega el poder politico en sus representantes, si bien en ultima instancia todo poder deriva de Dios. Sostiene que la realeza es el mejor de los regimenes pero tambien cuya realizacion es mas peligrosa ya que su antitesis, la tirania, es la peor de las formas politicas. Insiste en fomentar las virtudes del principe para que este no sacrifique el bien comun a su bien personal y se convierta en un tirano.
+
+## 02.06 - Juan Jacobo Rousseau
+
+> "Rousseau creen en el individuo, hace de el una capacidad de virtud, lo integra en una comunidad y suma su poder en el poder de todos, para organizar por la voluntad general la existencia de las naciones".
+>
+> -- Peron, 09 Abril 1949, en el discurso de clausura del Congreso de Filosofia de Mendoza
+
+Rousseau desempeño un papel importante en la preparacion doctrinaria de la Revolucion Francesa. Para el el hombre no es social por naturaleza, pero no es agresivo como sostiene Hobbes, sino bueno. La sociedad es quien lo corrompe. En su obra fundamental "El Contrato Social" presenta una estructuracion politico-social que, segun el, asegurara la libertad y la igualdad de todos los hombres.
+
+En lo referente a la propiedad privada, en su famoso discurso "Sobre el origen de la desigualdad entre los hombres" sostiene que es la causa son la desigualdad y la discordia pero no propone abolirla, ya que la considera una garantia de la libertad individual. En cambio pide, en interes del Pueblo, medida que limiten el volumen de las propiedades personales, y otras disposiciones de caracter social que aseguren el progreso economico de la comunidad.
+
+Para Rousseau el Estado es el producto de un acuerdo tacito entre los ciudadanos en su interes comun. El Estado debe servir a todos los ciudadanos sin excepcion, asegurandoles la libertad y la igualdad.
+
+## 02.07 Carlos Marx
+
+> "El marxismo convertira en materia politica la discusion filosofica y hara de ella una bandera para la interpretacion materialista de la historia".
+>
+> -- Peron, 09 Abril 1949, en el discurso de clausura del Congreso de Filosofia de Mendoza
+
+Marx parte del caracter social del individuo, sostiene que este es deformado por las condiciones imperantes en la sociedad, condiciones de explotacion del hombre por el hombre, es decir, del hombre que no posea mas riqueza que su fuerza de trabajo, sus brazos, por parte del que detenta el capital o los medios de produccion: maquinas, tierras, etc.
+
+Se verifica la existencia de clases opresoras y oprimidas que, segun los diversos modos de produccion, van cambiando de nombre; asi, en el modo de produccion esclavista, son los esclavos y los señores; en el feudal, los siervos de la gleba (del latin, significa *terron* o *tierra de cultivo*) y los señores feudales; en el sistema capitalista, los proletarios y los burgueses. Toda la historia humana es una historia de lucha de clases. Esta lucha la sostienen los oprimidos contras sus opresores, en busca de mejores condiciones de trabajo y de vida. Marx sostiene que los proletarios triunfaran y el sistema capitalista sera sustituido por el comunista. En el sistema comunista, entiende, no se repetira el ciclo de explotaicon pues al desaparecer la propiedad privada, se eliminaran las causas de cualquier genero de explotacion. No sera el reino de los proletarios porque estos desapareceran como clase, sino del hombre comunista, liberado de cualquier tipo de cadenas. Marx llama a los proletarios a unirse a fin de realizar la revolucion comunista, en la cual no tienen nada que perder, teniendo todo un mundo que ganar.
+
+En lo referente al Estado, sostiene que es un organo de dominacion, de opresion de una clase por otra. En la sociedad comunista, al desaparecer la diferencia de clases, desaparece el Estado pues ya no tiene razon de ser.
+
+Este resumen tiene el proposito de demostrar la enorme distancia que hay entre las palabras y los hechos. En efecto, el sueño del hombre liberado, la transformacion del Estado, el paso del gobernante de hombre al gobernante de cosas, se convierte en una farsa dolorosa, al contrario de las realidades existentes en los paises donde se hizo el experimento.
+
+El comunismo solo pudo abrirse paso en un mundo profundamente deprimido por la explotacion sin tregua del capitalismo.
+
+> "El comunismo no es una causa. El comunismo es un efecto, una reaccion contra los capitalistas, de modo que para que el comunismo desaparezca tiene que desaparecer primero el capitalismo. Es una utopia querer hacer desaparecer el comunismo si no desaparecen la explotacion y los abusos del capitalismo".
+>
+> -- Peron, 19 Diciembre 1950, ante delegados del XVI Congreso de la Federacion de Empleados de Comercio
+
+
+
+
