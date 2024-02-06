@@ -231,4 +231,67 @@ Las conquistas sociales del Peronismo, que son concrecion de grandes ideales, so
 
 ### 03.04.A - Tomas Moro
 
+Tomas Moro, un politico y escritor ingles, fue decapitado en el año 1535 por la firmeza de sus convicciones.
+
+En su epoc se incrementaban en Inglaterra las manufacturas de lana, lo que motivo que los nobles dedicaran sus tierras a la cria de ovejas, para lo cual, sin ningun escrupulo, echaron a los campesinos de las tierras, que constituian su medio de subsistencia.
+
+Pueblos enteros fueron arrojados sin ninguna contemplacion a los caminos.
+
+> "Las ovejas devoran a los hombres"
+>
+> -- Tomas Moro, Utopia, el librito de oro sobre la reconstruccion del Estado y sobre la isla de Utopia
+
+Utopia significa lugar inexistente (del griego "u"/"no" y "topos"/"lugar", "ningun lugar" o "lugar que no existe"), la isla de Moro era, entonces, nada mas que un sueño.
+
+#### 03.04.A.1 - Utopia - 1era parte
+
+En esta parte Moro hace una critica mordaz y aguda de la sociedad de su tiempo. Describe toda la miseria moral de las clases ricas y la miseria material de la clase pobre. Encuentra la causa de que el numero cada vez mayor de ladrones entre la gente humilde es la avidez insaciable de los nobles que echan de sus tierras a los agricultores para destinarlas a la cria de ovejas. De este modo la gente queda sin tierra y sin trabajo y tiene que elegir entre morirse de hambre, robar o dedicarse a la mendicidad.
+
+> "... para que uno de esos codiciosos e insaciables devoradores pueda encerrar varios millones de acres en un solo cercado".
+>
+> -- Tomas Moro, Utopia
+
+Se manifiesta de este modo en contra de los latifundios.
+
+En otra parte dice que una de las principales causas de la miseria general reside en el excesivo numero de nobles "que son unos ociosos que viven del trabajo de los demas".
+
+Respecto del problema de la excesiva riqueza y la excesiva pobreza afirma: "ocurre con frecuencia que injustamente unos tienen mucho a causa de la miseria de los demas y que los que tienen mucho generalmente son peores que los que nada tienen".
+
+#### 03.04.A.1 - Utopia - 2da parte
+
+En esta parte habla de la organizacion social de la isla imaginaria.
+
+En ella todos los habitantes son iguales: no hay pobres ni mendigos, ya que todos tienen lo que necesitan, pues no hay clases de ricos que no trabajan y que provocan la miseria de los que trabajan para ellos. Nadie vive a expensas de los demas.
+
+El ideal de Moro, que no hubiera mas que una clase de hombres, la de los hombres que trabajan, que era una quimera en la sociedad de aquel entonces, es una realidad en la Argentina de hoy, gracias a Peron.
+
+En Utopia todos los habitantes cumplen una jornada de trabajo de seis horas, despues de la cual se dedican a cursos publicos, a perfeccionarse en su oficio, a la cultura fisica, etc.
+
+### 03.04.B - Tomas Campanella
+
+Campanella fue un filosofo y patriota calabres de singular integridad moral. Su palabra denunciadora de la falsedad le granjeo un gran numero de enemigos, que lo acusaron de hereje, atribuyendole obras que no habia escrito. Finalmente comprobaron su participacion en una conspiracion que estallo en Calabria, que buscaba la liberacion de Italia, su patria, de la dominacion española. Por esto estuvo preso durante veintisiete años. Fue sometido siete veces al tormento, que soporto con una firmeza de alma inquebrantable, respondiendo cada vez lo mismo: "Nunquam tacebo"/"Nunca callare".
+
+En la carcel compuso "La ciudad del Sol" que es la descripcion de una sociedad ideal donde impera la justicia.
+
+La injusticia reinante lo llevo a abrazar el ideal de una sociedad igualitaria. Penso que la abolicion de la propiedad privada era la solucion a la inmoralidad de los calabreses que hacian sus grandes negocios con los ocupantes españoles, sin importarles la humillacion de la patria ni el hambre del Pueblo.
+
+"Estos sujetos, a quienes la riqueza les ha convertido en arrogantes, en petulantes insensibles, en pedantes traidores, en impostores y explotadores" desaparecerian cuando se realizara su sueño.
+
+En la Ciudad del Sol "todos los hombres seran simultaneamente ricos y pobres. Ricos, porque tendran todo lo que necesiten. Pobres, porque niguno tendra ninguna propiedad y por eso, no seran los hombres quienes sirvan a las cosas, sino las cosas a los hombres".
+
+En el ultimo parrafo de su obra hace mencion al maquinismo que bajo el sistema capitalista habia convertido al hombre en sirviente de la maquina, en lugar de estar la maquina al servicio del hombre. Lo mismo que en la Utopia de Moro, todos los habitantes de esta ciudad trabajan y el que no trabaja, no come. Por lo tanto, no hay clases que vivan a expensas del esfuerzo de los demas, como sucedia en nuestro pais cuando los oligarcas vivian sin trabajar a expensas del Pueblo.
+
+En Ciudad del Sol el hombre que sabe muchos oficios es el mejor considerado. Todos se dirigen a su sitio de labor cantando, por caminos bien empedrados y los que trabajan en el campo van precedidos de bandas de musica.
+
+La jornada de trabajo es de seis horas, de modo que los hombres tienen tiempo para dedicarse al estudio, al cambio de ideas, a la lectura. En una palabra, se dan las condiciones para que la cultura sea accesible a todos los hombres.
+
+Esta aspiracion tambien ha sido convertida en realidad por el Peronismo, que sostiene que
+
+> "... la cultura que no es del Pueblo, no es cultura".
+>
+> -- Peron, 30 Agosto 1953, en el Hogar Escuela 24
+
+Los utopistas se oponian a las injusticias de la sociedad en que vivian, oponiendole la vision de una sociedad ideal en la que reinara la justicia, es decir, una sociedad justicialista. Pero no encontraban los medios para llegar a esa sociedad perfecta que consideraban un sueño irrealizable.
+
+Debemos ver en sus sueños la sed de justicia de estos hombres sinceros que pagaron con su vida y con su libertad las ansias de una sociedad mas feliz para todos los hombres, por el unico camino que es posible la felicidad: por el camino de la justicia, como lo ha demostrado Peron.
 
