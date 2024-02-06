@@ -1,4 +1,4 @@
-# 03 - Antecedentes de la Filosofia Peronista - Cristianismo - Utopistas
+# 03 - Antecedentes de la Filosofia Peronista - Cristianismo 
 
 ## 03.01 - Introduccion
 
